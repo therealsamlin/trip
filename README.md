@@ -79,6 +79,7 @@ https://www.biccamera.com.e.lj.hp.transer.com/bc/item/3085153/
 
 ### 03-30 (Fri)
 * Roppongi
+* Chanko Nabe
 
 ### 03-31 (Sat)
 * free mofo
